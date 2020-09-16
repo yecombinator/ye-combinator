@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://user-images.githubusercontent.com/1016365/93299207-8e783e00-f7a9-11ea-99f2-214104800be3.jpeg" width="500" />
+  <img src="https://user-images.githubusercontent.com/1016365/93299207-8e783e00-f7a9-11ea-99f2-214104800be3.jpeg" width="500" alt="ye combinator" />
 </p>
 
 # Ye Combinator
