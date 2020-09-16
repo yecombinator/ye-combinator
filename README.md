@@ -11,5 +11,5 @@
 — [ye](https://twitter.com/kanyewest/status/1306020451286544384?s=20)
 
 
-> When I spoke to Katie Jacobs who is on the board of Vivendi we decided to create a “Y combinator” for the music industry so artist have the power and transparency to to be in control of our future ... no more shady contracts ... no more life long deals. 
+> When I spoke to Katie Jacobs who is on the board of Vivendi we decided to create a “Y combinator” for the music industry so artist have the power and transparency to to be in control of our future ... no more shady contracts ... no more life long deals.  
 — [ye](https://twitter.com/kanyewest/status/1305977929180966913?s=20)
